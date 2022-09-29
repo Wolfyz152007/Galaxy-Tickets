@@ -13,3 +13,12 @@
 
 
 Thanks For Reading :) More Rules Will Be Added Soon
+
+
+
+
+# Bot Information
+
+# Will This Bot Be Open Source?
+
+Yes I Will Be Making This Open Source For Everyone So You Can Have A Cool Ticket System Is Well.
